@@ -9,4 +9,5 @@ d. Create a brand logo using Canva, following styling and branding guidelines an
 
 ## ANSWER
 
-[uiux (1).pdf](https://github.com/user-attachments/files/20510654/uiux.1.pdf)
+[UI UX LAB EXPERIEMENT2.docx](https://github.com/user-attachments/files/20745263/UI.UX.LAB.EXPERIEMENT2.docx)
+
